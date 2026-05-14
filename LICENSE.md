@@ -1,4 +1,4 @@
-
+Download Free exclusive Scripts for plants vs brainrots for plants vs brainrots and experience the ultimate in gameplay enhancement with god mode and aimbot. Designed for gamers
 
 
 
